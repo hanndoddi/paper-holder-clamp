@@ -5,6 +5,11 @@ Finish that was used is a wax polish
 
 Easy to use just split a4 paper and use a hole puncher on a6 setting I use leftover prints in an attempt to save the forrest.
 
+![overview](/2017-06-29%2018.46.08.jpg)
+Penholder made from old belts.
+![penhold](/2017-06-29%2018.16.55.jpg)
+Hook for hanging up and holding.
+![hook](/2017-06-29%2018.16.49.jpg)
 
 Inspired when by Custom Note Pads from Kristin Smith on Inventables
 
